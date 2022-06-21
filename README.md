@@ -1,4 +1,4 @@
-# pc-konfigurator #konfigurator #gaming-pc-konfigurator #laptop-konfigurator
+# pc-konfigurator
 best pc konfigurator site in germany. https://cls-computer.de/pc-konfigurator/
 
 PC Konfigurator - Individuell PC Zusammenstellen in Deutschland
